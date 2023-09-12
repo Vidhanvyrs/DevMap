@@ -1,6 +1,6 @@
 # WEB DEV🚀
 
-**Follow Me**: [GitHub Profile](https://github.com/Vidhanvyrs)
+**Follow Me**: [DotLasher⚔️](https://github.com/Vidhanvyrs)
 
 ## Frontend Web Development
 
